@@ -1,4 +1,4 @@
-# :movie_camera: Awesome Movinight Themes
+# :movie_camera: Awesome Movienight Themes
 Find a theme for a movienight and a great selection of movies below
 
 ## :dart: Movienight Themes
