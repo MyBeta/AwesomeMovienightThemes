@@ -5,3 +5,4 @@ Find a theme for a movienight and a great selection of movies below
 * [Movies of Wes Anderson](./WesAnderson.md)
 * [French Movies](./FrenchMovies.md)
 * [Movies of Woody Allen](./WoodyAllen.md)
+* [Hindi Movies](./HindiMovies.md)
