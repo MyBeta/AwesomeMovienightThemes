@@ -1,5 +1,4 @@
 # Movienight 28.11.2020 // German Movies
-No Particular order 
 
 ## 1. Good Bye Lenin! (2003)
 :clapper: https://www.youtube.com/watch?v=u5hzmwGW4Ac
@@ -38,7 +37,14 @@ The most entertaining and fluid of the 1970’s German terrorism subgenre is als
 
 The film functions as both thriller and social drama, it offers insight into the troublesome 1970’s in Germany and it manages to keep its distance from the controversial and flawed characters in their battle against an even more reprehensible social system. This is required viewing for anyone interested in recent German history and sweeping docudramas with an attention to detail.
 
-## 5. Toni Erdmann (2016)
+## 5. Gegen die Wand // Head-On (2004)
+:clapper: https://www.youtube.com/watch?v=NFSAAW88GcY
+
+**:trophy: IMDB 7.9 :clapper: Fatih Akin :star2: Birol Ünel, Sibel Kekilli, Catrin Striebeck, Meltem Cumbul**
+
+Cahit is a German Turk at his late 30's. He has given up with his life after his beloved wife's death, and he's living a miserable life right in the core of cocaine and excessive drinking. One night, he semi-intentionally crashes into a wall, and barely survives. At the hospital he's taken to, he meets a girl, Sibel, another German Turk who's tried to commit suicide. She's sick and tired of her family's ultra-traditional issues, and asks Cahit to carry out a white marriage with her out of the blue, so that she can become a married woman and get rid of her family's revolting pressure. Cahit is turned off by the idea at first, but then he agrees to take part in this plan. As Sibel tells him straightaway that she's interested in absolute freedom involving other men and he agrees, they live as roommates with separate private lives for a while. Then things take a different turn, and they're no longer two indifferent roommates. But their love story won't be anywhere as simple as any other...
+
+## 6. Toni Erdmann (2016)
 :clapper: https://www.youtube.com/watch?v=j0uwi5EPnpA
 
 **:trophy: IMDB 7.4 :clapper: Maren Ade :star2: Sandra Hüller, Peter Simonischek, Michael Wittenborn**
@@ -47,7 +53,7 @@ Winfried doesn’t see much of his working daughter Ines. The suddenly student-l
 
 Enter flashy Toni Erdmann: Winfried’s smooth-talking alter ego. Disguised in a tacky suit, weird wig and even weirder fake teeth, Toni barges into Ines’ professional life, claiming to be her CEO’s life coach. As Toni, Winfried is bolder and doesn’t hold back, but Ines meets the challenge. The harder they push, the closer they become. In all the madness, Ines begins to understand that her eccentric father might deserve some place in her life after all..
 
-## 6. Lola Rennt // Run Lola Run (1998)
+## 7. Lola Rennt // Run Lola Run (1998)
 :clapper: https://www.youtube.com/watch?v=ppeZQ8inevE
 
 **:trophy: IMDB 7.6 :clapper: Tom Tykwer :star2: Franka Potente, Moritz Bleibtreu, Herbert Knaup, Nina Petri, Joachim Król, Armin Rohde, Heino Ferch, Suzanne von Borsody, Sebastian Schipper**
@@ -56,14 +62,14 @@ A teenager movie more than anything else, it offers all the cheap visual thrills
 
 The movie plays out in three alternate versions of the same story (think Groundhog Day on steroids), all dependant on split-second decisions which crucially alter the characters’ destiny. Peppered by philosophical interludes disguised as flashbacks and held together by Lola’s constant running through the streets of Berlin, the movie manages to pack a wallop of sensory stimuli in its brief 81 minutes of running time.
 
-## 7. Die fetten Jahre sind vorbei // The Edukators (2004)
+## 8. Die fetten Jahre sind vorbei // The Edukators (2004)
 :clapper: https://www.youtube.com/watch?v=MB1UMfC8koc
 
 **:trophy: IMDB 7.5 :clapper: Hans Weingartner :star2:  Daniel Brühl, Julia Jentsch, Stipe Erceg, Burghart Klaußner**
 
 This is a provocative movie about generational conflict, focusing on young people who are fighting against capitalism in a very distinctive way. Jan, Peter and Jule break into rich people’s houses while the owners are gone, carefully rearranging their possessions and leaving behind a note that their days of plenty are numbered. When they get caught in the act, they have no choice but to kidnap the homeowner. The slow falling apart of their idealistic worldview begins. Shooting with a handheld camera, Hans Weingartner, a former activist himself, raises the question of how fear can limit freedom.
 
-## 8. Das Experiment (2001)
+## 9. Das Experiment (2001)
 :clapper: https://www.youtube.com/watch?v=MG_xQs9_MGQ
 
 **:trophy: IMDB 7.5 :clapper: Oliver Hirschbiegel :star2: Moritz Bleibtreu, Justus von Dohnányi, Christian Berkel, Oliver Stokowski, Andrea Sawatzki**
@@ -72,14 +78,14 @@ Tarek Fahd, a journalist, takes part in a scientific study in order to write an 
 
 Human nature being what we know it to be, everything soon turns drastically violent, involving gradual mind games and a mysterious black box. Connecting everything with Germany’s dark past, the perfect casting and the actor’s sure-shot delivery makes it an eerie and timeless viewing experience, devoid of stylistic bombast.
 
-## 9. Sophie Scholl - Die letzten Tage (2005)
+## 10. Sophie Scholl - Die letzten Tage (2005)
 :clapper: https://www.youtube.com/watch?v=XM5A4ETW_Io
 
 **:trophy: IMDB 7.6 :clapper:  Marc Rothemund  :star2: Julia Jentsch, Fabian Hinrichs, Alexander Held, Johanna Gastdorf**
 
 In 1943, student activist Sophie Scholl and fellow members of the White Rose resistance group work tirelessly to distribute anti-war and anti-Nazi propapanda in Munich. During one such mission, the Gestapo take her and her brother into custody; six days later, Sophie meets her fate. 
 
-## 10. Die Welle // The Wave (2008)
+## 11. Die Welle // The Wave (2008)
 :clapper: https://www.youtube.com/watch?v=4FYDF8wGn5E
 
 **:trophy: IMDB 7.6 :clapper:  Dennis Gansel  :star2: Jürgen Vogel, Frederick Lau, Max Riemelt, Jennifer Ulrich**
