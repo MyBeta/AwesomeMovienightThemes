@@ -10,8 +10,6 @@ This tragicomedy became a smash hit earlier this century, both in Germany and in
 
 While touching on important political and social issues, Becker constructs an elaborate and funny charade around the fall of socialism, brilliantly combining a satire of the communist state with the story of a boy’s love for his mother.
 
-2. Unergang 
-
 ## 2. Der Untergang // Downfall (2004)
 :clapper: https://www.youtube.com/watch?v=Bp1RXmM1-60
 
@@ -75,12 +73,15 @@ Tarek Fahd, a journalist, takes part in a scientific study in order to write an 
 Human nature being what we know it to be, everything soon turns drastically violent, involving gradual mind games and a mysterious black box. Connecting everything with Germany’s dark past, the perfect casting and the actor’s sure-shot delivery makes it an eerie and timeless viewing experience, devoid of stylistic bombast.
 
 ## 9. Sophie Scholl - Die letzten Tage (2005)
+:clapper: https://www.youtube.com/watch?v=XM5A4ETW_Io
+
 **:trophy: IMDB 7.6 :clapper:  Marc Rothemund  :star2: Julia Jentsch, Fabian Hinrichs, Alexander Held, Johanna Gastdorf**
 
 In 1943, student activist Sophie Scholl and fellow members of the White Rose resistance group work tirelessly to distribute anti-war and anti-Nazi propapanda in Munich. During one such mission, the Gestapo take her and her brother into custody; six days later, Sophie meets her fate. 
 
-## 8. Die Welle // The Wave (2008)
-https://www.youtube.com/watch?v=4FYDF8wGn5E
+## 10. Die Welle // The Wave (2008)
+:clapper: https://www.youtube.com/watch?v=4FYDF8wGn5E
+
 **:trophy: IMDB 7.6 :clapper:  Dennis Gansel  :star2: Jürgen Vogel, Frederick Lau, Max Riemelt, Jennifer Ulrich**
 
  This thriller is inspired by the true story of a high school teacher in California who designed an experiment to teach his students about Nazism. Similar to the 1971 Stanford-prison-experiment - excellently depicted in another German film, Das Experiment - it powerfully portrays the horrific allure of mass movements.
